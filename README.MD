@@ -11,4 +11,4 @@ https://www.mediafire.com/folder/5znuwnn2d17oc/zeodsc-gen
 
 best generator out their
 
-update working as of 10/10/2024
+update working as of 10/11/2024
